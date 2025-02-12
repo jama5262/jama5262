@@ -9,6 +9,4 @@ I'm passionate about building software that improves the lives of those around m
 
 Email - jama3137@gmail.com
 
-LinkedIn - https://www.linkedin.com/in/jama-mohamed/
-
-Twitter - https://twitter.com/timedjama5262
+LinkedIn - https://www.linkedin.com/in/jama-mohamed
