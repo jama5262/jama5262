@@ -1,4 +1,4 @@
-# Jama Mohamed—@jama5262
+# Jama—@jama5262
 
 ### Hi there 👋
 
